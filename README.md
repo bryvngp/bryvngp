@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on let's see
 - 📫 How to reach me @bryvngp in instagram
 - 😄 Pronouns: brayou
-- ⚡ Fun fact: i'm not gay but 50$ is 50$ 😂
 
 <!---
 bryvngp/bryvngp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
